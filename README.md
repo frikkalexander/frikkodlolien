@@ -1,0 +1,2 @@
+# frikkodlolien
+For future projects
